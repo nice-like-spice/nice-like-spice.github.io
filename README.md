@@ -1,1 +1,0 @@
-# Strange Folk Festival
